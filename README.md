@@ -48,8 +48,8 @@ More projects and skills will be added as I continue learning 🚀
 
 📫 Connect With Me
 
-🌐 Portfolio: Add your website link
-💼 LinkedIn: Add your LinkedIn link
+🌐 Portfolio: https://vincy-portfolio.lovable.app/
+💼 LinkedIn: https://www.linkedin.com/in/m-arockiavincy-91959b3a7
 
 ---
 
