@@ -48,7 +48,7 @@ More projects and skills will be added as I continue learning 🚀
 
 📫 Connect With Me
 
-🌐 Portfolio: https://vincy-portfolio.lovable.app/
+🌐 Portfolio: https://vincyportfolio.lovable.app
 💼 LinkedIn: https://www.linkedin.com/in/m-arockiavincy-91959b3a7
 
 ---
